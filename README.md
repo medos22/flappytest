@@ -1,2 +1,2 @@
 # floppytest
-life good
+this place is just for my friends 
